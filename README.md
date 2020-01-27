@@ -1,0 +1,1 @@
+# GIS4810-Spring-2020-MSU-Denver-
